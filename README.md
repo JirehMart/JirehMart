@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on open-source projects and innovative ideas that make a positive impact.
 
-📫 How to reach me: Feel free to contact me via email at jirehmart@example.com.
+📫 How to reach me: Feel free to contact me via email at jirehmaviso@hotmail.com
 
 😄 Pronouns: He/Him
 

@@ -8,8 +8,6 @@
 
 📫 How to reach me: Feel free to contact me via email at jirehmaviso@hotmail.com
 
-😄 Pronouns: He/Him
-
 ⚡ Fun fact: I enjoy outdoor activities like hiking and photography in my free time.
 
 <!---
